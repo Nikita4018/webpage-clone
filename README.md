@@ -12,3 +12,4 @@ some glimpses are here:
 (https://github.com/Nikita4018/webpage-clone/assets/136677082/7065234b-4c68-48a1-91f3-2008b383d6![Screenshot (101)](https://github.com/Nikita4018/webpage-clone/assets/136677082/d65922ed-6a67-4c09-a54c-25a9d3fcc828)
 44)
 ![Screenshot (100)](https://github.com/Nikita4018/webpage-clone/assets/136677082/3057c9e3-ea3b-45dc-b4e6-dd5718414284)
+![Screenshot (101)](https://github.com/Nikita4018/webpage-clone/assets/136677082/5b9ee090-7c9b-445e-8849-8562ce73a5bc)
